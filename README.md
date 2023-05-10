@@ -1,7 +1,7 @@
 # Note : The Creator IS NOT RESPONSIBLE FOR ANY DAMAGE DONE USING THIS!
 
 
-# check my channel : youtube.com/@localalloc
+# check my channel : youtube.com/@localalloc1
 
 # This Malware Was Intended for a VIDEO please don't mal use it
 
